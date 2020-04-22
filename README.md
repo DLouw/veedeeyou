@@ -4,4 +4,4 @@ Behold this magnificent list:
 2. Dehan Low
 3. Ntuthuko Zombie
 4. Siphelele Papaya
-5. Rugsak Van der Walt
+5. Izak Van der Walt
